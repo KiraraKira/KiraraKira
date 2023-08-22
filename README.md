@@ -14,3 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+……こんにちは、雲母(きらら)です。
+<br>
+はじめまして、どうぞよろしくお願いします。
+
+https://kirarakira.github.io/
+<br>
+https://kirara.flowus.cn
+
+<hr>
+
